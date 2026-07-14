@@ -8,6 +8,8 @@
 - 💬 Ask me about **PYTHON,JAVA**
 
 - 📫 How to reach me **pasindugamagedara501@gmail.com**
+  
+- 💼 I'm currently open for an intern or a new job opportunity.
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
